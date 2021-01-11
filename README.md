@@ -1,0 +1,1 @@
+# all-whitehat-jr-class
